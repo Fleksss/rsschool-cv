@@ -1,1 +1,1 @@
-# rs-school
+https://Fleksss.github.io/rsschool-cv/cv
